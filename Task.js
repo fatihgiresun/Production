@@ -1,0 +1,2 @@
+triggerin birinci versiyonu
+triggerin ikinci versiyonu
